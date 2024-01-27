@@ -6,23 +6,27 @@ Reseach subjects:
 - Mass-Spectrometry (MS)
 - Proteomics
 - Ovarian Cancer
-- Cancer heteroginity
+- Cancer heterogeneity
 
 Cool stuff I learned during my studies:
 - Cool stuff 1
 - Cool stuff 2
 
 Nice videos for MS rookies-
-link
+look at Thermo youtube for MS [instrumentation](https://youtu.be/RsFsaCkVqxM?si=L2wtyHol-P-jVWdz) 
 
 
 Personal-
 
 On my free time- 
-I like to travel and explore new places, Skii, hang with friends and try some new teritories.
+I like to travel and explore new places, Ski, hang with friends and try some new teritories.
+
 Traveling-
 
-Skii+Snowboared-
+Ski + Snowboard-
+
+Innsbruck - best place for both snowboard and hip city-life
+![Innsbruck](https://static.independent.co.uk/s3fs-public/thumbnails/image/2016/01/21/14/innsbruck.jpg)
 
 Awesome resturants and cocktails places-
 
